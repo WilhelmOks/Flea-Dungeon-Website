@@ -1,1 +1,1 @@
-We do not collect any personal data or information from our users.
+No personal data or information is collected from users.
