@@ -1,1 +1,1 @@
-Wir erfassen keine personenbezogenen Daten oder Informationen von unseren Benutzern.
+Es werden keine personenbezogenen Daten oder Informationen von Benutzern erfasst.
